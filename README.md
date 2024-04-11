@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-[hofmannanton.de](https://hofmannanton.de)
+[hofmannanton.de](https://www.hofmannanton.de)
